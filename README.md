@@ -1,1 +1,1 @@
-# ***Haters be hating but I'm higher on the nano-Dijkstra scale.***
+# ***Haters be hating but I'm high on the nano-Dijkstra scale.***
